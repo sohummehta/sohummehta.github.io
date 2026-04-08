@@ -37,7 +37,7 @@ Best take of all time:
 
 ![Colin Cowherd saying Ben Simmons is the future](https://pbs.twimg.com/media/GjSSaZ4aMAAoAK3.jpg)
 
-[Link to image](https://x.com/iKlayThompson/status/1888295129074786665)
+[Link to image](sohummehta.github.io/GjSSaZ4aMAAoAK3.jpg)
 ## Bucket List
 
 - [ ] Visit every continent (4 more left)
